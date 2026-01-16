@@ -34,7 +34,7 @@ ANASUYA GANESH
 Lekshman Suresh 
 Nandana R
 Hridaya SR 
-Al. Ameen. S
+Al. Ameen. S  PRESENT
 Gautham G
 B S ASWIN RAJ
 Alan andrew
