@@ -15,7 +15,7 @@ Fathima Suhyr
 BHAGATH P 
 Jophin Jith
 Agrima S R 
-D Gowry Rejith 
+D Gowry Rejith "Present"
 Devkrishnan H P
 Aslah Ashraf 
 Adwayth Arun 
