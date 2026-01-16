@@ -5,7 +5,7 @@ Amrutha R S
 Aparna A
 Aparna A
 Anjana Sugunan.B 
-Devananda Joshy
+Devananda Joshy Present 
 Gayathri J 
 Jophin Jith
 Gouri P
