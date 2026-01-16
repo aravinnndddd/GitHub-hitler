@@ -14,7 +14,7 @@ Abhimanyu M S
 Fathima Suhyr 
 BHAGATH P 
 Jophin Jith
-Agrima S R 
+Agrima S R              present 
 D Gowry Rejith 
 Devkrishnan H P
 Aslah Ashraf 
