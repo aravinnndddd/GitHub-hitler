@@ -40,7 +40,7 @@ B S ASWIN RAJ
 Alan andrew
 Alan andrew
 Aatish Manoj
-Devika B
+Devika B           Present
 Anand
 Abhijith T 
 Devajith H
