@@ -2,7 +2,7 @@ AROMAL J
 Devanandha. L.S
 Anjali S
 Amrutha R S 
-Aparna A
+Aparna A present
 Aparna A
 Anjana Sugunan.B 
 Devananda Joshy
